@@ -1,6 +1,6 @@
 # Tsurugi-AHK-Leak
-Once again, I'll leak it again since there is people out there who are still selling it.
+Once again, I’m sharing this because there are still people out there selling it.
 
-Don't believe anything people are selling.
+Don’t believe anything people are selling.
 
-And no, I do not own this in any kind of way, all my credit goes to the ones who made it.
+And no, I don’t own this in any way. All credit goes to those who created it.
